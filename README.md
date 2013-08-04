@@ -26,3 +26,18 @@ Faço isto porque considero que Alcoólicos Anônimos, Narcóticos Anônimos, Am
 Nestas circunstâncias, considero justo e coerente dedicar esforços para garantir alternativas àquelas pessoas que não frequentam grupos de apoio não por serem fracxs, mas porque têm reais dificuldades de interagir com estes grupos, ficando à mercê de pseudo cientistas sociais, psicólogxs, psiquiatras, padres, pastorxs, prostitutxs e outras pragas pútrefes com ou sem "pê".
 
 A agressividade empregada na minha linguagem é um recurso, uma ferramenta. Não se trata de energia emocional mal administrada, e sim de um uso eficiente da mesma. Mas esta é a minha opinião sobre o meu trabalho e é limitada. Contribuições para este trabalho são bem vindas, mas não se iluda, este trabalho é refém da minha interpretação individual.
+
+### Índice:
+
+1. [Primeiro Passo](markdown/Primeiro Passo.md)
+2. [Segundo Passo](markdown/Segundo Passo.md)
+3. [Terceiro Passo](markdown/Terceiro Passo.md)
+4. [Quarto Passo](markdown/Quarto Passo.md)
+5. [Quinto Passo](markdown/Quinto Passo.md)
+6. [Sexto Passo](markdown/Sexto Passo.md)
+7. [Sétimo Passo](markdown/Sétimo Passo.md)
+8. [Oitavo Passo](markdown/Oitavo Passo.md)
+9. [Nono Passo](markdown/Nono Passo.md)
+10. [Décimo Passo](markdown/Décimo Passo.md)
+11. [Décimo Primeiro Passo](markdown/Décimo Primeiro Passo.md)
+12. [Décimo Segundo Passo](markdown/Décimo Segundo Passo.md)
