@@ -1,4 +1,4 @@
-Os-Doze-Passos-para-xs-Ateus
+Os Doze Passos para xs Ateus
 ============================
 
 ```
