@@ -22,3 +22,7 @@ Não há professor, mestre, autoridade ou qualquer outrx imbecil capaz de te ens
 Teclados de computador, canetas, papel, muros, latas de spray, microfones, megafones, palcos, tintas, telas, jornais, radios, câmeras, são ferramentas. Fala, escreve, se expressa. Não tem outro jeito de se livrar disto que te atormenta a não ser botar pra fora. Não te preocupa, a natureza recicla tudo.
 
 O que é um lixo tóxico para ti pode ser um tesouro inestimável para outrem. Daí a minha justificativa para escrever pensando em quem vai ler. Para mim este livro é inútil, fútil e irrelevante. Para alguém que talvez eu nem conheça pode ser fator decisivo para salvar a vida. Não que eu esteja no ramo de salvar vidas ou que eu simpatize com as pessoas. Meu interesse é simplesmente escrever porque parece que tem um bicho carpinteiro botando fogo na minha bunda e que só para depois que eu escrevo o que tem que ser escrito.
+
+Há quem diga que quem escreve são entidades externas, espíritos, exus, anjos, deuses, etc. E que quem se expressa tem que se livrar de sua vaidade. Mas pra mim não faz sentido isto. Eu tenho consciência plena de que sou escravo do meu ego e não fico criando subterfúgios para fazer de conta que eu não sou. Pouco me importa se sou eu ou alguma coisa além de mim escrevendo. Eu quero escrever pra me livrar disto.
+
+Seja qual for a forma que tu encontre para fazer a tua autólise e botar o que tu tem de pior para fora, faça sem medo. Lembre-se, a pior coisa que pode te acontecer é a morte. Como não tem como fugir dela, não faz sentido temê-la.
