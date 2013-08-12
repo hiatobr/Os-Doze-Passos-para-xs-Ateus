@@ -245,3 +245,12 @@ a {
 .cf {
   zoom:1;
 }
+
+# hiatobr
+
+.btn .ler {
+  color: #b5e853;
+}
+.vazio {
+  text-decoration: line-through;
+}
