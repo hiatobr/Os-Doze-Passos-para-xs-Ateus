@@ -248,7 +248,8 @@ a {
 
 /* hiatobr */
 
-.btn .ler {
+.ler {
+  font-size:xx-large;
   color: #b5e853;
 }
 .vazio {
