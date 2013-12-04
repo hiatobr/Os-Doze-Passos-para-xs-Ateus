@@ -1,0 +1,43 @@
+Prefácio
+===
+
+```
+Os Doze Passos para xs Ateus, ou:
+Os Doze Passos para os Ateus
+Os Doze Passos para as Atéias
+```
+
+### Disclaimers:
+
+* Este livro não tem nenhum tipo de vínculo com Alcoólicos Anônimos, Narcóticos Anônimos, Amor Exigente, Os Doze Passos Para Alcoólicos Anônimos, Os Doze Passos Para Narcóticos Anônimos, Os Doze Passos Para os Cristãos. Tampouco pretende afrontar, confrontar ou deturpar a imagem destas instituições e livros.
+* Este livro é uma obra independente, anônima (na medida do possível), e de domínio público não autoral (na medida do possível). Se tu conhece o autor ou autores, siga a Décima Segunda Tradição e mantenha o sigilo. Autorxs identificadxs não devem ser responsabilizadxs individualmente e pessoalmente pelas consequências da publicação deste livro, por cumprirem a função de disponibilizar o material que não necessariamente é produzido por elxs.
+* Este livro é domínio público e não tem restrições de direitos autorais. Copie, cole, assuma a autoria, reescreva, reinvente, remixe. Não há lei alguma para te impedir de te expressar. Pare de consumir e escreva a tua própria história.
+* Este livro é um trabalho em construção e edições são divulgadas digitalmente ou impressas de acordo com critérios estabelecidos pelo autor, autorxs ou colaboradorxs anônimos. O processo do trabalho pode ser acompanhado no endereço do serviço de hospedagem (atualmente http://github.com/hiatobr/Os-Doze-Passos-para-xs-Ateus/).
+
+### Justificativa(s):
+
+Este livro começou a ser escrito devido ao fato de mais de uma pessoa me relatar que não sente abertura nos meios de recuperação e grupos de auto ajuda existentes.
+
+Alguns poderão dizer que isto é um subterfúgio e que quem tem o desejo sincero vai conseguir abstrair estas questões e atingir seus objetivos em relação à recuperação. Enquanto concordo com esta premissa, eu digo que isto não significa que alternativas não devem ser pensadas.
+
+O caminho de Alcoólicos Anônimos, Narcóticos Anônimos, Amor Exigente, entre outros grupos de apoio derivados de Alcoólicos Anônimos, não é este que sigo. Estou propondo este trabalho de forma autoritária, independente e sem nenhum tipo de vínculo. Porque nestes grupos de apoio as coisas são decididas e propostas de forma horizontal, inciativas individuais normalmente não são premiadas e promovidas. Isto não é literatura oficial destes grupos de apoio.
+
+Faço isto porque considero que Alcoólicos Anônimos, Narcóticos Anônimos, Amor Exigente, entre outros grupos de apoio derivados de Alcoólicos Anônimos, não têm ouvidoria eficiente. Quem tem problemas para interagir com estes grupos simplesmente não os frequenta e não vai lá reclamar que está errado.
+
+Nestas circunstâncias, considero justo e coerente dedicar esforços para garantir alternativas àquelas pessoas que não frequentam grupos de apoio não por serem fracxs, mas porque têm reais dificuldades de interagir com estes grupos, ficando à mercê de pseudo cientistas sociais, psicólogxs, psiquiatras, padres, pastorxs, prostitutxs e outras pragas pútrefes com ou sem "pê".
+
+Se alguém pode escrever "Os Doze Passos para os Cristãos", bom, então abrimos uma porta para coisas novas, diferentes, e o que da certo para alguém que está no caminho da recuperação, pode e deve ser questionado, mas merece respeito.
+
+A agressividade empregada na minha linguagem é um recurso, uma ferramenta. Não se trata de energia emocional mal administrada, e sim de um uso eficiente da mesma. Mas esta é a minha opinião sobre o meu trabalho e é limitada. Contribuições para este trabalho são bem vindas, mas não se iluda, este trabalho é refém da minha interpretação individual.
+
+Eu faço afirmações neste livro acerca do comportamento das pessoas a partir do meu ponto de vista, que é o único que eu tenho. E é exatamente o que eu declaro explicitamente que todo mundo que eu vejo, sem exceção, está fazendo. Alguém poderia me dizer que eu vejo isto porque eu é que sou assim, e isto faz absoluto sentido. Só tem como eu ver nxs outrxs aquilo que me é inerente.
+
+Mas não fique com a minha palavra. Observa as pessoas. Observa a ti mesmx. Observa como as pessoas agem, observa como tu age e tira tuas próprias conclusões. E se possível me prove que minha interpretação está prejudicada e livra a mim e a quem lê o que eu escrevo de assumir premissas inválidas.
+
+De fato, se alguém tem que abrir a boca para afirmar alguma coisa, é porque não sabe o que diz e está tentando convencer xs outrxs porque tem uma necessidade intrínseca de convencer a si mesmx daquilo que luta para afirmar. É o caso de todas as afirmações que eu faço neste livro.
+
+Via de regra, alguém que tem um conselho para dar está tentando mentalizar e transformar aquele conselho em uma verdade para si mesmx. E é conveniente isto, pois parece que não tem mesmo outro jeito para aprendermos as coisas a não ser falando do que não sabemos para xs outrxs até que aprendamos nós mesmxs, como é meu caso enquanto escritor disto. Mas só quem se beneficia com conselhos é quem os profere. Se alguém realmente tivesse algum tipo de conhecimento que tivesse algum tipo de valor, não ia compartilhar assim de graça. Se eu tivesse algum tesouro ia guardar para mim, e não compartilhar contigo, leitorx.
+
+Eu estou ciente que algumas pessoas podem ter buscado ou vieram a buscar este livro na esperança de que eu pudesse te ajudar a admitir e aceitar a tua condição. Mas este é um caminho solo. Tu está absolutamente sozinhx nesta empreitada. Há os grupos de ajuda, há a literatura convencional de Alcóolicos Anônimos e todxs xs derivadxs disto. Mas realmente o que estes recursos vão te dizer é exatamente o que eu te digo agora: Aceitar e admitir tua insignificância só depende de ti, e minha abordagem é agressiva. Se eu encher meu livro de floreios, elogios, estarei fazendo um desserviço para ti.
+
+Há quem diga que para que o livro seja lido ele deve ser agradável para quem lê, e que as pessoas estão buscando ser agradadas. Eu te direi no entanto, se o que tu busca é isto, este livro não te é útil. Não é útil para mim desperdiçar tempo te agradando. As substâncias químicas é que têm esta função, e eu não estou disposto a providenciar um substituo de graça. Olhe de novo, este livro NÃO é comercial, financiado, patrocinado, não tem nem um autor tentando ser reconhecido em primeiro lugar.
