@@ -32,3 +32,8 @@ A regra para mim é clara. Se tem como eu entender, se tem como eu compreender, 
 Eu direi no entanto, quanto mais conhecimento e instruções que estiverem fora de ti tu buscar, menos chances tu tem de ver o que está indicado que tem que ser feito. Conhecimento e instruções servem para destruir teu foco e tua concentração, e te induzir a replicar os erros que as outras pessoas vivem cometendo.
 
 Te livra de crenças estúpidas e burras, e a descrença te libertará. Mentira! Burrx! Pare de ler o que eu escrevo e vá usar o cérebro!
+
+* Quarto Passo
+
+Ninguém deu nenhum passo enquanto depender de outras pessoas para perceber as coisas relatadas nos três primeiros passos. Na verdade, parece que somos dependentes uns dxs outrxs, se não tu não precisaria estar lendo o que eu escrevo, mas isto só faz sentido porque agora eu sou o personagem que escreve e tu, o personagem que lê. Para efeito de compreensão deste passo, vamos assumir por um momento que há uma possibilidade de sermos independentes.
+
