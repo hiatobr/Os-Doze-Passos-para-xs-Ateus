@@ -1,6 +1,8 @@
 Trechos removidos do livro e organizados aqui para fins de registro
 =
 
+>O que estiver escrito aqui não será publicado no livro, isto está registrado no código fonte para fins de revisão, inspiração e histórico. De fato, toda e qualquer alteração desde o começo do processo está registrada na fonte do livro no repositório git.
+
 * Primeiro Passo
 
 Mas realmente parece que para a grande maioria das pessoas esta é a parte mais difícil de todas. Eu dedico a minha vida inteira a descobrir formas novas de olhar nos olhos das pessoas e dizer: "-A tua vida inteira é um lixo e tu tem que jogar ela fora, e reciclar tudo, porque tu não tem uma única coisa de valor."
