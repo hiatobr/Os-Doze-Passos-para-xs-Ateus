@@ -3,7 +3,7 @@ Trechos removidos do livro e organizados aqui para fins de registro
 
 >O que estiver escrito aqui não será publicado no livro, isto está registrado no código fonte para fins de revisão, inspiração e histórico. De fato, toda e qualquer alteração desde o começo do processo está registrada na fonte do livro no repositório git.
 
-* Primeiro Passo
+* Primeiro Passo (descartado)
 
 Mas realmente parece que para a grande maioria das pessoas esta é a parte mais difícil de todas. Eu dedico a minha vida inteira a descobrir formas novas de olhar nos olhos das pessoas e dizer: "-A tua vida inteira é um lixo e tu tem que jogar ela fora, e reciclar tudo, porque tu não tem uma única coisa de valor."
 
@@ -11,11 +11,11 @@ Paradoxalmente, é a única coisa que alguém precisa para não ter que me ouvir
 
 Parece que 50% das pessoas que me escutam falar estas coisas me mandam tomar no cu e roubam minha carteira, me chamando de louco, 49% me tiram para herói e acham que eu tenho um insight profundo na natureza humana, posteriormente jurando para mim de pés juntos lutarão pela vida, e por consequência disto voltam a correr atrás do rabo andando em círculos como de costume. O restante de 1% das pessoas, que são as realmente honestas, me dizem algo como "realmente, tu tem razão, concordo plenamente. Mas como eu só tenho essa merda de lixo para ser, me deixa em paz e vai cuidar do teu próprio lixo."
 
-* Segundo Passo
+* Segundo Passo (descartado)
 
 Se tu é deficiente visual tu entendeu prontamente o que eu quis dizer com "observa o mundo com teus próprios olhos". Se tu não é deficiente visual, faz um esforço pra tentar entender o que significa isto.
 
-* Terceiro Passo
+* Terceiro Passo (descartado)
 
 Às vezes as pessoas estultas, que se dizem sãs e normais desperdiçam tempo tentando me convencer de que as pessoas tomam decisões e fazem escolhas. Eu olho para estas pessoas com os mesmos olhos de uma criança que observa uma jaula de orangotangos.
 
@@ -35,11 +35,11 @@ Eu direi no entanto, quanto mais conhecimento e instruções que estiverem fora 
 
 Te livra de crenças estúpidas e burras, e a descrença te libertará. Mentira! Burrx! Pare de ler o que eu escrevo e vá usar o cérebro!
 
-* Quarto Passo
+* Quarto Passo (descartado)
 
 Ninguém deu nenhum passo enquanto depender de outras pessoas para perceber as coisas relatadas nos três primeiros passos. Na verdade, parece que somos dependentes uns dxs outrxs, se não tu não precisaria estar lendo o que eu escrevo, mas isto só faz sentido porque agora eu sou o personagem que escreve e tu, o personagem que lê. Para efeito de compreensão deste passo, vamos assumir por um momento que há uma possibilidade de sermos independentes.
 
-* Quinto Passo
+* Quinto Passo (descartado)
 
 Ninguém deu nenhum passo enquanto depender de outras pessoas para perceber as coisas relatadas nos três primeiros passos. Na verdade, parece que somos dependentes uns dxs outrxs, se não tu não precisaria estar lendo o que eu escrevo, mas isto só faz sentido porque agora eu sou o personagem que escreve e tu, o personagem que lê. Para efeito de compreensão deste passo, vamos assumir por um momento que há uma possibilidade de sermos independentes.
 
