@@ -36,3 +36,5 @@ Os Doze Passos para as Ateias
 Livro disponível para leitura online em http://tinyurl.com/12ateus (link direto: http://hiatobr.github.io/Os-Doze-Passos-para-xs-Ateus/)
 
 Para divulgar basta escrever em um papel, muro, parede, poste, banco, ou qualquer superfície o link tinyurl.com/12ateus
+
+Enviar comentários, críticas, sugestões para hiato@riseup.net
