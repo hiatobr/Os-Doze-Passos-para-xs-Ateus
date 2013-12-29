@@ -25,7 +25,7 @@ Não lute contra aquelas coisas que tu acha que é ruim. Te entrega e deixa elas
 
 A pior coisa que pode te acontecer é a morte. E como tu vai morrer de qualquer forma, então realmente não há nada de ruim que possa te acontecer. A questão então deve ser: é melhor continuar com medo de se conhecer ou morrer?
 
-Mas é isto que todo mundo, sem exceção, está fazendo: fugindo de si mesmxs, fugindo de se conhecer. Alguém só vai fazer isto quando a água bater na bunda, quando não tiver mais pra onde fugir, quando não tiver mais pra onde correr. Quano encontrar o que eu recuperação chama-se "fundo do poço".
+Mas é isto que todo mundo, sem exceção, está fazendo: fugindo de si mesmxs, fugindo de se conhecer. Alguém só vai fazer isto quando a água bater na bunda, quando não tiver mais pra onde fugir, quando não tiver mais pra onde correr. Quando encontrar o que em recuperação chama-se "fundo do poço".
 
 E isto deve separa aquelxs motivadxs de todo o resto das pessoas que vão passar a vida inteira andando em círculos. Alguém só vai fazer algo pela sua vida quando for melhor morrer do que continuar na situação da forma como se encontra. Se tu está satisfeitx com esta mediocridade que tu chama de vida, este livro não é pra ti. Vá te foder e volte quando tua arrogância, prepotência, orgulho e ego estiverem te sufocando e tu não tiver mais subterfúgios para fazer de conta que tu é importante pra alguém.
 
