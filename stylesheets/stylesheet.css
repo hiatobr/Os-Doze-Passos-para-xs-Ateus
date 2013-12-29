@@ -255,3 +255,8 @@ a {
 .vazio {
   text-decoration: line-through;
 }
+
+p {
+	padding:0.5em;
+}
+
