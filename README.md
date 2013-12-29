@@ -32,3 +32,7 @@ Os Doze Passos para as Ateias
 1. [Décimo Primeiro Passo](markdown/Décimo Primeiro Passo.md)
 1. [Décimo Segundo Passo](markdown/Décimo Segundo Passo.md)
 1. [Epílogo](markdown/Epílogo.md)
+
+Livro disponível para leitura online em http://tinyurl.com/12ateus (link direto: http://hiatobr.github.io/Os-Doze-Passos-para-xs-Ateus/)
+
+Para divulgar basta escrever em um papel, muro, parede, poste, banco, ou qualquer superfície o link tinyurl.com/12ateus
